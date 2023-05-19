@@ -1,0 +1,102 @@
+---
+title: "Wise Words"
+date: 2023-05-19T20:53:59+03:00
+draft: false
+---
+![wise words](https://i.ytimg.com/vi/0wQLflDq-yU/maxresdefault.jpg)
+
+- “Thinking too much leads to paralysis by analysis. It’s important to think things through, but many use thinking as a means of avoiding action.” – Robert Herjavek
+- “We are dying from overthinking. We are slowly killing ourselves by thinking about everything. Think. Think. Think. You can never trust the human mind anyway. It’s a death trap.” ― Anthony Hopkins
+- “Empathy is simply listening, holding space, withholding judgment, emotionally connecting, and communicating that incredibly healing message of you’re not alone.” – Brene Brown
+- Strive to find things to be thankful for, and just look for the good in who you are. — Bethany Hamilton
+- You have brains in your head. You have feet in your shoes. You can steer yourself in any direction you choose. You’re on your own. And you know what you know. And YOU are the one who’ll decide where to go. ― Dr. Seuss
+- To begin with the end in mind means to start with a clear understanding of your destination. It means to know where you’re going so that you better understand where you are now and so that the steps you take are always in the right direction. – Stephen R. Covey
+- “Each one of us has to start out with developing his or her own definition of success. And when we have these specific expectations of ourselves, we’re more likely to live up to them. Ultimately, it’s not what you get or even what you give, it’s what you become” - Mary Gates
+- Before committing to something, think about the problems related to it and if you will be able to bear them.
+- Don’t let someone else’s opinion of you become your reality. ― Les Brown
+- “Your assumptions are your windows on the world. Scrub them off every once in a while, or the light won’t come in.” ― Isaac Asimov
+- No amount of guilt can ever undo anything. - Wayne Dyer
+- Guilt is anger directed at ourselves - at what we did or did not do. Resentment is anger directed at others - at what they did or did not do. - Peter McWilliams
+- Guilt is perhaps the most painful companion of death. - Coco Chanel
+- “Don’t think too much. You’ll create a problem that wasn’t even there in the first place.” ― Unknown
+- “When you judge others, you do not define them, you define yourself” ― Earl Nightingale
+- “Stop worrying about what can go wrong, and get excited about what can go right.” ― Anonymous
+- “A day of worry is more exhausting than a week of work.” ― Anonymous
+- “Worrying is using your imagination to create something you don’t want.” ― Anonymous
+- “The less you worry, the less complicated life becomes.” ― Anonymous
+- The best antidote to worry is action. ― Wayne Dyer
+- “Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.” — Buddha
+- “The ability to be in the present moment is a major component of mental wellness.” — Abraham Maslow
+- “Life gives you plenty of time to do whatever you want to do if you stay in the present moment.” — Deepak Chopra
+- There is no glory in practice, but without practice, there is no glory. – Unknown
+- The more you practice, the better you get, the more freedom you have to create. – Jocko Willink
+- For the things we have to learn before we can do them, we learn by doing them. – Aristotle
+- My father taught me that the only way you can make good at anything is to practice and then practice some more. – Pete Rose
+- Exercise to stimulate, not to annihilate. The world wasn’t formed in a day, and neither were we. Set small goals and build upon them. ― Lee Haney
+- The pain you feel today will be the strength you feel tomorrow.” ― Anonymous
+- The reason I exercise is for the quality of life I enjoy.” ― Kenneth H. Cooper
+- “Identify your problems but give your power and energy to solutions.” ― Anonymous
+- “The problem contains the solution.” ― Michael Bierut
+- “Do not blame the world. Find a solution.” ― Sri Chinmoy
+- “Where your attention goes, your time goes” ― Idowu Koyenikan,
+- “What you stay focused on will grow.” ― Roy T. Bennett
+- “It’s easy to stand with the crowd it takes courage to stand alone” ― Anonymous
+- The time you feel lonely is the time you most need to be by yourself. ― Douglas Coupland
+- To live alone is the fate of all great souls. ― Arthur Schopenhauer
+- Life is a series of natural and spontaneous changes. Don’t resist them - that only creates sorrow. Let reality be reality. Let things flow naturally forward in whatever way they like. - Lao Tzu
+- Sometimes letting things go is an act of far greater power than defending or hanging on. - Eckhart Tolle
+- “Let people do what they need to do to make them happy. Mind your own business, and do what you need to do to make you happy.” ― Leon Brown
+- “Not everyone thinks the way you think, knows the things you know, believes the things you believe, nor acts the way you would act. Remember this and you will go a long way in getting along with people.” – Arthur Forman
+- “Above all, don’t lie to yourself. The man who lies to himself and listens to his own lie comes to a point that he cannot distinguish the truth within him, or around him, and so loses all respect for himself and for others. And having no respect he ceases to love.” ― Fyodor Dostoevsky
+- I think the one lesson I have learned is that there is no substitute for paying attention. ― Diane Sawyer
+- The simple act of paying attention can take you a long way. ― Keanu Reeves
+- Mindfulness means being awake. It means knowing what you are doing. ― Jon Kabat-Zinn
+- “Every moment is an eminently suitable moment for unlimited profundity–if you allow it to be so.” - Adi Da Samraj
+- “The mind is everything. What you think you become.” - Buddha
+- The important thing is not to stop questioning. Curiosity has its own reason for existing. – Albert Einstein
+- It is not the answer that enlightens, but the question. – Eugene Ionesco
+- To generalize is to be an idiot. ― William Blake
+- The more specific we are, the more universal something can become. Life is in the details. If you generalize, it doesn’t resonate. The specificity of it is what resonates. ― Jacqueline Woodson
+- “Isn’t it strange how a lamb can feel like a lion when comparing itself to a mouse, whereas a lion feels like a lamb when measuring itself against dragons?” ― Richelle E. Goodrich,
+- “Not all donuts have a hole and not all holes have donuts around them, so every mistake is relative and every perfection is subjective.” ― Corina Abdulahm-Negura
+- Respect your efforts, respect yourself. Self-respect leads to self-discipline. When you have both firmly under your belt, that’s real power. ― Clint Eastwood
+- Ego is false confidence, self-respect is true confidence. ― Naval Ravikant
+- “Stand up for who you are. Respect your Self and ignite the divine sparks in you. Access your powers. Choose your rights and work together with others to bring blessings into the lives.” ― Amit Ray
+- Don’t lower your standards for anyone or anything. Self respect is everything. ― Anonymous
+- Love yourself first, and then others. – Chetan Bhagat
+- Self-respect is the fruit of discipline… – Abraham J. Heschel
+- Respect yourself enough to walk away from anything that no longer serves you, grows you, or makes you happy. ― Robert Tew
+- Character — the willingness to accept responsibility for one’s own life — is the source from which self-respect springs. ― Joan Didion
+- Every success story is a tale of constant adaption, revision and change. ― Richard Branson
+- We are conditioned to look for justice in life and when it doesn’t appear, we tend to feel anger, anxiety or frustration. — Wayne DyerI think goals should never be easy. They should force you to work, even if they are uncomfortable at the time. ― Michael Phelps
+- “That’s the magic of revisions – every cut is necessary, and every cut hurts, but something new always grows.” ― Kelly Barnhill
+- “If you want to live a happy life, tie it to a goal, not to people or things.” – Albert Einstein
+- “If you aim for nothing, you’ll hit it every time.” – Source unknown
+- “Use 2-minute rule. The two-minute rule says that when a task will take you less than two minutes, just do it—don’t add it to your to-do list or capture it for later. It really helps to deal with small things quicker and lets your brain to be much less occupied.” — Roman Tsegelskyi
+- “The starting point of all achievement is desire.” — Napoleon Hill
+- “The secret to getting ahead is getting started.” ― Mark Twain
+- If the world were so organized that everything had to be fair, no living creature could survive for a day. The birds would be forbidden to eat worms, and everyone’s self-interest would have to be served. — Wayne Dyer
+- People who don’t expect justice don’t have to suffer disappointment. — Isaac Asimov
+- Look at nature to realize there is no justice in the world. Tornadoes, floods, tidal waves, draughts are all unfair… …The world and the people in it go on being unfair every day. You can choose to be happy or unhappy, but it has nothing to do with the lack of justice you see around you. — Wayne Dyer
+- Be a doer, not a complainer about injustice. For every injustice you suffer, there is a resolution that does not require you to be immobilized in any way. — Wayne Dyer
+- Things are not quite so simple always as black and white. — Doris Lessing
+- “Some people like living in black and white worlds. Let them stay there. Appreciate all the colors you see in your world though.” — Ashly Lorenzana
+- Trust starts with truth and ends with truth. ― Santosh Kalwar
+- The best way to find out if you can trust somebody is to trust them. ― Ernest Hemingway
+- “He who does not trust enough will not be trusted.” – Lao Tzu
+- Trust, but verify. ― Ronald Reagan
+- “To be trusted is a greater compliment than being loved.” – George MacDonald
+- You must trust and believe in people or life becomes impossible. ― Anton Chekhov
+- Trust has to be earned, and should come only after the passage of time. ― Arthur Ashe
+- “I don’t trust people who don’t love themselves and tell me, ‘I love you.’ … There is an African saying which is: Be careful when a naked person offers you a shirt.” ― Maya Angelou
+- “Seek respect, not attention. It lasts longer.” ― Ziad K. Abdelnour,
+- Don’t let someone get comfortable with disrespecting you ― Unknown
+- The most important thing in communication is to hear what isn’t being said. – Peter Drucker
+- Wise men speak because they have something to say; Fools because they have to say something. – Plato
+- Our culture teaches a child to rely on others rather than trusting his own judgment. — Wayne Dyer
+- “A truly strong person does not need the approval of others any more than a lion needs the approval of sheep.” ― Vernon Howard
+- Needing approval is tantamount to saying, “Your view of me is more important than my own opinion of myself.” — Wayne Dyer
+- No matter what you do, people are always going to have something negative to say about it. You could spend your life constantly trying to seek people’s approval and validation, but there is always going to be someone that has something negative to say about what you’re doing. ― Tana Mongeau
+- “Don’t seek approval. This may be the toughest suggestion for you to follow — and the most important. Whether you’re a teenager seeking approval from your peers, a middle-aged parent seeking the approval of your kids, or a man or woman seeking the approval of a partner, it all amounts to the same thing. You’re giving your personal power away every time you seek validation from someone else for who you are.” – TRISH MACGREGOR
+- “Stay true to yourself. An original is worth more than a copy.” ― Suzy Kassem,
+- “Most people think everybody feels about them much more violently than they actually do; they think other people’s opinions of them swing through great arcs of approval or disapproval.” ― F. Scott Fitzgerald.

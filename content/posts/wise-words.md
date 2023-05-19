@@ -1,9 +1,9 @@
 ---
-title: "Wise Words"
+title: "Wise Quotes"
 date: 2023-05-19T20:53:59+03:00
 draft: false
 ---
-![wise words](https://i.ytimg.com/vi/0wQLflDq-yU/maxresdefault.jpg)
+![wise quotes](https://i.ytimg.com/vi/0wQLflDq-yU/maxresdefault.jpg)
 
 - “Thinking too much leads to paralysis by analysis. It’s important to think things through, but many use thinking as a means of avoiding action.” – Robert Herjavek
 - “We are dying from overthinking. We are slowly killing ourselves by thinking about everything. Think. Think. Think. You can never trust the human mind anyway. It’s a death trap.” ― Anthony Hopkins

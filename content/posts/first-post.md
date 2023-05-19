@@ -24,6 +24,6 @@ Here are some tips for learning to see:
 Learning to see is a lifelong journey. The more you see, the more you will learn. And the more you learn, the more you will grow. So open your eyes and start seeing the world in a new way.
 
 ## References
-[1](appadvice.com/app/leonardo-da-vinci-art/1003292945)
-[2](www.jaegerscience.com/famous-scientists.html)
-[3](624821a17u44y.ukardiologa.ru/)
+[1](https://www.appadvice.com/app/leonardo-da-vinci-art/1003292945)
+[2](https://www.jaegerscience.com/famous-scientists.html)
+[3](https://www.624821a17u44y.ukardiologa.ru/)
